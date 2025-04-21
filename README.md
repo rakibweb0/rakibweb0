@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **rakibce30@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1d__od9NTJbNabyyk0CeEE24k5VA_9zxm/view?usp=drive_link](https://drive.google.com/file/d/1d__od9NTJbNabyyk0CeEE24k5VA_9zxm/view?usp=drive_link)
+- 📄 Know about my experiences [Google Drive Link](https://drive.google.com/file/d/1Hu_hxT1HrvJ3Qv8FnrAWA-qI1VROdeOS/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
